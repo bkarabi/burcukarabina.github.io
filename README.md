@@ -1,2 +1,2 @@
 # burcukarabina.github.io
-Burcu Karabina professional website
+Burcu Karabina's professional website
